@@ -1,7 +1,5 @@
 
 
-
-
 ### Golden Farms CBD Gummies   : 100% really effective and healthier  
 <div align="center">
 <img src="https://lh5.googleusercontent.com/proxy/OqaY6B9In3sabrCLLsyA1IxrC9oiayNAzX9zikNKsAWiXAKQTE3-BpSJd6bnGEw4B7tzvWzUMlea-Yezu-fsv8eFiRuPGcx3oc-ls9McN3XlAe-CvoW1ucwi7DT4XxOrJm228mEQsF_lINsKXnN7t1dUW5HcJNrEYvODZRu7aD8ELRA1ikoCzYPrz2hMEfMw" align="center" style="width: 100%" />
